@@ -1,5 +1,5 @@
 # The-Solution-to-the-Mark-of-the-Beast
-The inability to use money to a death sentence to anybody, yet nowadays money is increasingly centralised and controlled. With the clear and stark warning in the biblical prophecy concerning the Antichrist: "no man may buy or sell, except having [the Antichrist's] mark", Bitcoin appears to be the only solution as a neutral medium of exchange.
+The inability to use money is a death sentence to anybody, yet nowadays money is increasingly centralised and controlled. With the clear and stark warning in the biblical prophecy concerning the Antichrist: "no man may buy or sell, except having [the Antichrist's] mark", Bitcoin appears to be the only solution as a neutral medium of exchange.
 
 "And he causeth all, both small and great, rich and poor, free and bond, to receive a mark in their right hand, or in their foreheads: And that no man might buy or sell, save he that had the mark, or the name of the beast, or the number of his name." Revelation 13:16-17 (KJV)
 
